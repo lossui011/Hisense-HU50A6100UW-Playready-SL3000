@@ -1,2 +1,4 @@
 # Hisense-Playready-SL3000
-drm pyplayready shield sl2000 sl3000 hisense cheap certs zgpriv bgroupcert .prd
+legit affordable sl3000s contact lossui011@proton.me
+peacocktv - skyshowtime - nowtv - disney+ - amazon - canal+
+and much more
