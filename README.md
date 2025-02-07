@@ -1,4 +1,6 @@
-# Hisense-Playready-SL3000
-legit affordable sl3000s contact lossui011@proton.me
-peacocktv - skyshowtime - nowtv - disney+ - amazon - canal+
-and much more
+# AMZN 4K CERTIFICATE ABUSE (deviceTypeId: AAJ692ZPT1X85) " people enjoy and share love "
+# WEAK TEE IMPLANTATION
+# INSECURE DRM SYSTEM
+# PLAYREADY HEY!
+# FOR EDUCATIONAL PURPOSE
+contact lossui011@proton.me
